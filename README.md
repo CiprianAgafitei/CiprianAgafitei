@@ -6,7 +6,7 @@
 - 😄 Pronouns: Ciprian or just Cipri, for friends ;)
 - ⚡ Something about me?
 Yeah, I'm friendly, I like interacting with people and helping anyone I can. I always try to do my best everywhere. I love learning new stuff, teaching others and learning by myself.
-If you find any defects about me, just let me know, I will try to improve them!  
+If you find any defects about me, just let me know, I always try to improve myself!💪 Don't be shy!😉  
 
 <!---
 CiprianAgafitei/CiprianAgafitei is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
